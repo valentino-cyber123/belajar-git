@@ -8,4 +8,7 @@ Pemakai GIT serasa menjadi hacker yang keren.
 
 !(Alt Text) (https://media.tenor.com/sloU8hg1-nYAAAAi/ketawa-wkwkwkwkkw.gif)
 
-##Hapan saya
+##Harapan saya
+Saya ingin lulus dengan cepat dan mendapatkan IPK tinggi.
+
+Kedepannya saya berusaha menjadi lebih baik dari sebelumnya
